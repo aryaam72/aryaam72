@@ -48,4 +48,4 @@ LinkedIn: www.linkedin.com/in/aryaa-modi
 
 ✨ **Fun Fact:** 
 I love Studio Ghibli movies and often work while listening to their soundtracks. 
-There’s a specific playlist I’ve probably played over a thousand times—it keeps me focused!
+There’s a specific playlist I’ve probably played over a thousand times because it keeps me focused!
