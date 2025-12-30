@@ -9,7 +9,7 @@ machine learning, data pipelines, and inclusive innovation. I’m also a teachin
 experience in both front-end and back-end tools.
 
 Currently, I’m looking to deepen my experience in data science, machine learning, and software engineering through hands-on 
-internships and collaboration opportunities—let’s connect!
+internships and collaboration opportunities.
 
 ---
 
